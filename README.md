@@ -1,1 +1,0 @@
-# sweidemaier-sgp26
